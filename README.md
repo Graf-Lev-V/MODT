@@ -1,1 +1,3 @@
-[![toporlox](https://raw.githubusercontent.com/Graf-Lev-V/MODT/refs/heads/main/C160F217-3DEE-4C58-8E1E-E2C37549C8D4.png)](https://discord.gg/Y9TCzSfvGH)
+![toporlox](https://raw.githubusercontent.com/Graf-Lev-V/MODT/refs/heads/main/C160F217-3DEE-4C58-8E1E-E2C37549C8D4.png)
+
+# ➔ [КЛИКНИ СЮДА, ЧТОБЫ ВСТУПИТЬ В НАШ DISCORD](https://discord.gg/Y9TCzSfvGH)
